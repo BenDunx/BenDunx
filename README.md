@@ -1,4 +1,3 @@
-- they/them
 - Just here in advance
 - Python and HTML 
 - You can reach me at @bendunx on tumblr.com
