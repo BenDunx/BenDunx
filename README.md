@@ -1,6 +1,4 @@
-- Just here 
-- HTML 
-- You can reach me at @bendunx on tumblr.com
+
 
              ／、             
             （ﾟ､ ｡ ７         
